@@ -46,7 +46,8 @@ Tenho mais de 20 anos de experiência com gestão, análise e processos administ
 ---
 
 ## 📫 Onde me encontrar
-- 💼 [LinkedIn](https://www.linkedin.com/in/henriquemartins1969)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/henrique-martins-08402018/)
+- 💼 [Instagram](https://www.instagram.com/henrique.martins.paz/)
 - 📧 **henriquemartins1969@gmail.com**  
         +55 53 999.944.129
 - 🐙 [GitHub](https://github.com/henriquemartins1969)  
